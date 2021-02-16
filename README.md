@@ -12,13 +12,13 @@ Tentunya semua jenis game judi yang telah kami rangkum disini telah memenuhi sta
 
 Berikut adalah list peringkat teratas game slot dalam jaringan yang paling populer dimainkan di Indonesia :
 <ol>
- 	<li><a href="greatreef">Great Reef Online</a></li>
- 	<li><a href="goldenprincess">Golden Princess</a></li>
- 	<li><a href="colombus">Colombus Deluxe</a></li>
- 	<li><a href="fruitrainbow">Fruit Rainbow</a></li>
- 	<li><a href="aztec">Aztec Bonanza</a></li>
- 	<li><a href="fire">Fire88</a></li>
- 	<li><a href="wild">Wild West Gold</a></li>
+ 	<li>Great Reef Online</li>
+ 	<li>Golden Princess</li>
+ 	<li>Colombus Deluxe</li>
+ 	<li>Fruit Rainbow</li>
+ 	<li>Aztec Bonanza</li>
+ 	<li>Fire88</li>
+ 	<li>Wild West Gold</li>
 </ol>
 <h3><a id="greatreef"></a>Great Reef Online</h3>
 Great Reef merupakan permainan slot yang mengambil tema bawah laut dengan susunan 5 reels dan 25 jalur payline yang dikeluarkan oleh <a href="https://www.pragmaticplay.com">Pragmatic Play</a>. Simbol bonus pada permainan ini adalah Wild dan Scatter yang akan memicu bonus jackpot yang lebih besar dan akan membuka fitur Free Spin.
